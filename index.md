@@ -16,7 +16,7 @@ We have many teams on github and any person is free to join any team. Each team 
 
 ## Interaction between each other
 
-As we already told you, we are th people who are oming togethr to interact with each other. So we will be not leaving any person behind and have everyone participating in new events. 
+As we already told you, we are th people who are coming togethr to interact with each other. So we will be not leaving any person behind and have everyone participating in new events. 
 
 We will be interacting specially with the students os that they can learn everything neatly.
 
