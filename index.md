@@ -25,9 +25,5 @@ We will be interacting specially with the students os that they can learn everyt
 We are going to find out many different ways to communicate with each other. And that will help us in interaction
 
 ##
-
-So thats all!
-
-Ishan Kuber
-
-(Head of Web Department) 
+So thats all!   
+##
